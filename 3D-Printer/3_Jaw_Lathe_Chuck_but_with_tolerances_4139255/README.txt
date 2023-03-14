@@ -1,0 +1,1 @@
+3 Jaw Lathe Chuck but with tolerances by tomas38 on Thingiverse: https://www.thingiverse.com/thing:4139255
